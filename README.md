@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aryawithay
 - 👀 I’m interested in ... art and character design
 - 🌱 I’m currently learning ... lol
-- 💞️ I’m looking to collaborate on ... this DICK!
+- 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... don't
 
 <!---
